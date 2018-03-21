@@ -9,3 +9,5 @@ L'innovation, c'est une situation qu'on choisit parce qu'on a une passion brulan
 Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur montriez.
 
 En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique au monde.
+
+Voulez-vous paser le reste de votre vie à vendre de l'eau sucrée, ou voulez-vous changer le monde?
