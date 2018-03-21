@@ -11,3 +11,5 @@ Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur m
 En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique au monde.
 
 Voulez-vous paser le reste de votre vie à vendre de l'eau sucrée, ou voulez-vous changer le monde?
+
+Personne ne veut mourir. Même les gens qui veulent aller au ciel ne veulent pas mourir pour y arriver. Mais il se trouve que la mort est la destination que nous partageons tous. Personne n'y a jamais échappé. Et il en sera ainsi parce que la Mort est la meilleure chose que la vie ait pu inventer. C'est l'acteur du changement de la vie. Elle enlève le vieux pour frayer le chemin au neuf. Pour le moment vous êtes le neuf et d'ici quelques jours pas très loin, vous allez progressivement devenir le vieux et être enlevé. Désolé d'être aussi dramatique mais c'est tout à fait vrai.
